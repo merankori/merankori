@@ -224,6 +224,6 @@
 ## ☄️ Contact
 
 - :octocat: &nbsp;**[Github](https://github.com/merankori)**
-- :airplane: &nbsp;**[Telegram](https://t.me/yaubilrep)**
+- :airplane: &nbsp;**[Telegram](https://t.me/skiselev_vg)**
 
 <br>
